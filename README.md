@@ -1,2 +1,2 @@
 # ZeeChrist
-Newbie
+Bukan programmer tapi kang copast
